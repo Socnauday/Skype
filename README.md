@@ -1,0 +1,2 @@
+# Skype
+Khong co gì
